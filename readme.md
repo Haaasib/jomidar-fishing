@@ -10,5 +10,5 @@ IF you get issue then join our discord
 
 -------------------------------------
 Tebex : haaasib.tebex.io
-Discord : discord.gg/gDQnncDAdk
+Discord : https://discord.gg/T7du2nJfyN
 ------------------------------------
